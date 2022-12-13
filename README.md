@@ -3,3 +3,5 @@
 
 
 ROBIE ZADANIE :)
+Ja też
+ok,dodałam
